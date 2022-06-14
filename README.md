@@ -6,6 +6,6 @@ I like:-
 - Js
 - C
 
-Wanna friend me on discord? This is my USERNAME in Discord!
+Wanna message me on discord? This is my USERNAME in Discord!
 ```tutugoy#9460```
-I accept all friends!
+If you have a prob, then tell me!
